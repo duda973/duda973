@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @duda973
+- This is my old GitHub account and everything is migrated to my new account @dragutint, please visit: https://github.com/dragutint
